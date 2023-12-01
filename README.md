@@ -11,8 +11,11 @@ Di cómo será ese paso
 Algunas webs permitidas para realizar la acción:
 
 http://capitaldigitalnews.com
+
 http://vanguardsglobal.com
+
 http://phoenixofdetroit.com
+
 http://opiniondream.com
 
 Da un ejemplo Y repite
