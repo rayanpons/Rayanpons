@@ -18,6 +18,14 @@ http://phoenixofdetroit.com
 
 http://opiniondream.com
 
+http://renovationsanfrancisco.com
+
+http://inspireeconomist.com
+
+http://dailyquicknews.com
+
+http://urbanprodenver.com
+
 Da un ejemplo Y repite
 
 hasta finalizar Finaliza con un ejemplo de cómo obtener datos del sistema o cómo usarlos para una pequeña demo
